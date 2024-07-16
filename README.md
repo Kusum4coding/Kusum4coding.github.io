@@ -4,5 +4,5 @@ I am Kusum .I have completed my 12th with 90% marks .my favourite subject is Mat
 |  Date  | personalites guided us  |
 |--------|-------------------------|
 | 9- july -2024| Dr.SB Singh,Dr.Sehjpal Singh ,IAS Harleen Parmar|
-|--------------|-------------------------------------------------|
+
 | 11-july-2024 | Dr.Arvind Dhingra,Dr.Parminder singh,Dr.H.S Rai |

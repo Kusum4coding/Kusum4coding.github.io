@@ -23,9 +23,9 @@ Am so nervous as 9-july-2024 was my first day  at collage but the environment of
                        2.Department level associated(EG.E2S2)
 He also gave us formula of success:-
                                    3Ps of success
-                                   . **P**assion
-                                   . **P**ersistence
-                                   . **P**atience
+                                   .**P**assion
+                                   .**P**ersistence
+                                   .**P**atience
 Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer them Dr.H.S Rai sir addressed us he is controller of examination and told us that principle in software development is **DRY**(**DON'T REPEAT YOYRSELF**)  He also explained that in ENGINEERING there is 90-90 rule which means  **if you done 90% work but left 10% the rest 10% took 90% effort to finish that meams finishing is must in software engineering**                                    
                       
    

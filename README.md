@@ -26,7 +26,10 @@ He also gave us formula of success:-
                                    .**P**assion
                                    .**P**ersistence
                                    .**P**atience
-Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer them Dr.H.S Rai sir addressed us he is controller of examination and told us that principle in software development is **DRY**(**DON'T REPEAT YOYRSELF**)  He also explained that in ENGINEERING there is 90-90 rule which means  **if you done 90% work but left 10% the rest 10% took 90% effort to finish that meams finishing is must in software engineering**                                    
+Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer them Dr.H.S Rai sir addressed us he is controller of examination and told us that principle in software development is **DRY**(**DON'T REPEAT YOYRSELF**)  He also explained that in ENGINEERING there is 90-90 rule which means  **if you done 90% work but left 10% the rest 10% took 90% effort to finish that meams finishing is must in software engineering**  
+
+ ## third day  at collage
+ It was third day of collage of but first day to met classrooms ours first lecture was UHV (universal human values) Prof.Jasmine taught values are universal ,values are rational, they defined **Value** :- The value of an entity(living or non-living) is its participation in the larger order of which it is apart  they taught us a lesson that to be happy and prosporous you should have to be content and to acheive the state of contentment you have to know that what your satisfactory point is what do you want to achieve really in life and when with right undertanding you got to know it you become happy .And when your self become happy you become able to make other self happy afer class of UHV our senoiors guided us about collage and they also told us some basic excel skills
                       
    
    

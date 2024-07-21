@@ -68,7 +68,27 @@ Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer t
    
 
 
-After all that we visited DBMS Lab ,HPC lab OS Lab .we also visited training and palcement cell.                             
+After all that we visited DBMS Lab ,HPC lab OS Lab .we also visited training and palcement cell.
+
+## 6th day for me
+Our First lecture was of UHV in that we learned about the chapter "Understanding the human being as Co exixtence of self and body "in that we came to know that self is concious entity , requirements of self  are continous,requirements of self  are:-glory,love,respect these are to acheive the state of happiness.requrements of self are qualitative on the other hand ,body is material entity,requirements of body are discontinous, reqirements of body are physical facilites,requirements of body are quantitative.Desire is a mental image of either materil or relationship fullfilment.thought is image to fulfil desire.expectation is choosing of thought accordind to our taste.desire based upon three factors:-pre conditioning,sensation,natural acceptance.If imagination is based on desire,pre-conditioning then it is enslaved.if self is in disharmony then body will also go in disharmony and if body is in disharmony then self will also go in disharmony. we also leaned about relationship,relationship is always between oneself and otherself to have right understanding upon relationshipwe have to know feelings deeply .list of feelings
+
+
+1. Trust
+2. Respect
+3. Affection
+4. Care
+5. Guidance
+6. Reverence
+7. Glory
+8. Gratitude
+9. love
+after the lecture of UHV there was our canva class .The class was amazing .our seniors taken our class .I undersatand each and everything after that i made a flyer it was all an amazing exprience.
+
+
+## 7th day of student induction programme
+
+The best day of STP  .Firstly Dr.Gurcharan singh garewal ,member of SGPC(Sromani Gurudwara parbhandak comettie) and trusty of college addressed us he said that in old times it is harder for a student to get addmission in Guru Nanak Dev Engineering College.He also said that GNDEC is an autonomous college which means exams are conducted,cheacked totally by college.
   
    
    

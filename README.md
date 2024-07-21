@@ -90,7 +90,9 @@ after the lecture of UHV there was our canva class .The class was amazing .our s
 
 The best day of STP  .Firstly Dr.Gurcharan singh garewal ,member of SGPC(Sromani Gurudwara parbhandak comettie) and trusty of college addressed us he said that in old times it is harder for a student to get addmission in Guru Nanak Dev Engineering College.He also said that GNDEC is an autonomous college which means exams are conducted, totally by college,whole cheacking proccess is also  done by college.He taught us a lesson" vidheya kharidi nahi prapat kiti jandi hai".he also said that always take full name of college . after him respected Dr. harpal singh pannu ji addressed us,Harpal Singh Pannu ji explained that books are the source of knowledge. When we open any book, it starts imparting its knowledge to us.  When that knowledge inculcate within us. Then we can fly as high as we want on the basis of  knowledge. he was a spirtual personality.he shared their life experiencec with us . he taught us how to live life.their life is an example for me.
 
-Dr. Harwinder Singh
+**Dr. Harwinder Singh**
+
+
 Dr. Harwinder Singh, the ANO of NCC, introduced us to the valuable benefits of joining NCC. He outlined both the physical and mental advantages, explaining that NCC provides army training while also helping to shape our personality, build confidence and communication skills, enhance leadership qualities and teamwork, and, most importantly, teach discipline.
 Benefits of opting NCC includes:
 

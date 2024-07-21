@@ -64,6 +64,8 @@ Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer t
 1. To make good understanding with my teachers,senoirs and to work upon basic MS excel skills.
 2. To become successful in the feild of IT and to become a good codder
 3. From Respected Shaffy mamwho is my 10th class science teacher .they guided me to take Non- MEDICAL on the basis of my interest and score in Science and intoduced btech to me
+
+
 After all that we visited DBMS Lab ,HPC lab OS Lab .we also visited training and palcement cell.                             
   
    

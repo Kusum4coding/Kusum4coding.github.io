@@ -17,13 +17,13 @@ I was so nervous as 9-july-2024 was my first day  at college but the environment
   On our second day Dr. Arvind Dhingra sir addressed us they explained 
   
    ### types of membership
+   
                        - member
                        - Active memeber
                        - Executive member
                        - Office bearer
  ###  types of societies
-
-1. National level associated( eg.SCIE,ISTE,SAE)
+ 1. National level associated( eg.SCIE,ISTE,SAE)
 2. Department level associated(EG.E2S2)
 He also gave us formula of success:-
  3Ps of success
@@ -48,10 +48,13 @@ Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer t
 ## 5th day of student induction program through my eyes  
  
   This day was so wonderful ...as our collage campus is so big . College conducted our department visit . I enjoyed it it very much .In morning first we all gathered outside the MBA block.then we went to a lab in which Dr.Amit kamra addressed us . They asked us to answer some questions the questions was:-
+  
   1. What is your short-term goal?
 2. What is your long-term goal
 3. How you got to know about this college
+   
  IN my opinion answer of  questions are:-
+ 
 1. To make good understanding with my teachers,senoirs and to work upon basic MS excel skills.
 2. To become successful in the feild of IT and to become a good codder
 3. From Respected Shaffy mamwho is my 10th class science teacher .they guided me to take Non- MEDICAL on the basis of my interest and score in Science and intoduced btech to me

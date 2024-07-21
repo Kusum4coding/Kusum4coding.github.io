@@ -88,8 +88,38 @@ after the lecture of UHV there was our canva class .The class was amazing .our s
 
 ## 7th day of student induction programme
 
-The best day of STP  .Firstly Dr.Gurcharan singh garewal ,member of SGPC(Sromani Gurudwara parbhandak comettie) and trusty of college addressed us he said that in old times it is harder for a student to get addmission in Guru Nanak Dev Engineering College.He also said that GNDEC is an autonomous college which means exams are conducted,cheacked totally by college.
-  
-   
-   
+The best day of STP  .Firstly Dr.Gurcharan singh garewal ,member of SGPC(Sromani Gurudwara parbhandak comettie) and trusty of college addressed us he said that in old times it is harder for a student to get addmission in Guru Nanak Dev Engineering College.He also said that GNDEC is an autonomous college which means exams are conducted, totally by college,whole cheacking proccess is also  done by college.He taught us a lesson" vidheya kharidi nahi prapat kiti jandi hai".he also said that always take full name of college . after him respected Dr. harpal singh pannu ji addressed us,Harpal Singh Pannu ji explained that books are the source of knowledge. When we open any book, it starts imparting its knowledge to us.  When that knowledge inculcate within us. Then we can fly as high as we want on the basis of  knowledge. he was a spirtual personality.he shared their life experiencec with us . he taught us how to live life.their life is an example for me.
 
+Dr. Harwinder Singh
+Dr. Harwinder Singh, the ANO of NCC, introduced us to the valuable benefits of joining NCC. He outlined both the physical and mental advantages, explaining that NCC provides army training while also helping to shape our personality, build confidence and communication skills, enhance leadership qualities and teamwork, and, most importantly, teach discipline.
+Benefits of opting NCC includes:
+
+1. SAHARA Scholarship for NCC cadets
+2. Expenses of uniforms and camps are beared by the government
+3. Chance to get selected in armed forces
+NDA
+4. Besides being position in armed forces, NCC also provides us life skills that serves us whole life.
+   
+   
+## Er. Jasvir Singh Grewal
+
+He discussed “The Power of Service: NSS and Nation Building,” highlighting how the National Service Scheme (NSS) enables students to contribute to community development and national progress. NSS volunteers work on education, health awareness, environmental conservation, disaster relief, and social justice. Participation in NSS not only helps others but also builds valuable life skills and leadership qualities. He encouraged students to join NSS, emphasizing its role in linking academic learning with real-world problem-solving and fostering a more inclusive and prosperous nation. He also invited those who truly want to serve humanity to get involved.
+
+
+**Work Done by NSS:-**
+
+
+1. Afforestation
+2. AIDS awareness
+3. Blood donation camps
+4. cleaniness of our environment
+5. Disaster Manangement etc.
+
+ 
+**Benefits of NSS:-**
+
+
+1. Personality Development.
+2. It helps in acquiring leadership qualities and democratic attitude.
+3. It developer a sense of involvement in the task of nation building.
+4. It helps in developing positive attitude, self-confidence, courage & patience.

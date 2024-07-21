@@ -45,8 +45,8 @@ Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer t
 2. Do what you love,love what you do
   they told us a story that once there was a child who want to buy ballon he went to the ballon vendor he had just 2 ruppes in his pocket. he asked the ballon vendor what is the cost of ballon? vendor replied 5 ruppes. he ruffuses to give ballon to child the child sit under a tree near the ballon vendor. all ballons of ballon vendor get sailed but one ballon is not sailed the vendor at last decided to give that ballon to that child in just 2 ruppes after listening this, suddenly a question came to child's mind that why the vendor agreed to give me this ballon in 2 ruppes? child noticed  that the color of ballon was black he quickly questions to the vendor, " will this ballon also fly as high as other ballons of different colors the vendor replied that how much  high a ballon fly doesn't depend upon its color, shape etc it depend upon what is filled insise that.. **similarly how much a person become successful doesn't depend upon his or her's caste, creed, color, height, weight. it depends upon how much knowledge ,skills he or she have** After them a fourth year mechenical engineering student Mr. pancham addressed us  they taught us  about body language
 
-  # 5th day of student induction program through my eyes
-  
+## 5th day of student induction program through my eyes  
+ 
   This day was so wonderful ...as our collage campus is so big . College conducted our department visit . I enjoyed it it very much .In morning first we all gathered outside the MBA block.then we went to a lab in which Dr.Amit kamra addressed us . They asked us to answer some questions the questions was:-
   1. What is your short-term goal?
 2. What is your long-term goal

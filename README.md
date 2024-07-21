@@ -17,16 +17,20 @@ I was so nervous as 9-july-2024 was my first day  at college but the environment
   On our second day Dr. Arvind Dhingra sir addressed us they explained 
   
    ### types of membership
-   
-                       - member
-                       - Active memeber
-                       - Executive member
-                       - Office bearer
+   1. Member
+   2. Active Member
+   3. Executive Member
+   4. officer bearer
+ 
  ###  types of societies
+ 
  1. National level associated( eg.SCIE,ISTE,SAE)
 2. Department level associated(EG.E2S2)
+ 
 He also gave us formula of success:-
+
  3Ps of success
+ 
 1. Passion
 2. Persistence
 3. Patience
@@ -43,6 +47,8 @@ Then Dr.Parminder sir addressed us he expplained some scholorship schemes afer t
  After Dr.pyare lal garg ,**Mr.Sony goyal** addressed us he was such a wonderful personality he was a mentor,motivator and entrepreneur he gave us two mantras of success
  1. Give your 100%
 2. Do what you love,love what you do
+
+   
   they told us a story that once there was a child who want to buy ballon he went to the ballon vendor he had just 2 ruppes in his pocket. he asked the ballon vendor what is the cost of ballon? vendor replied 5 ruppes. he ruffuses to give ballon to child the child sit under a tree near the ballon vendor. all ballons of ballon vendor get sailed but one ballon is not sailed the vendor at last decided to give that ballon to that child in just 2 ruppes after listening this, suddenly a question came to child's mind that why the vendor agreed to give me this ballon in 2 ruppes? child noticed  that the color of ballon was black he quickly questions to the vendor, " will this ballon also fly as high as other ballons of different colors the vendor replied that how much  high a ballon fly doesn't depend upon its color, shape etc it depend upon what is filled insise that.. **similarly how much a person become successful doesn't depend upon his or her's caste, creed, color, height, weight. it depends upon how much knowledge ,skills he or she have** After them a fourth year mechenical engineering student Mr. pancham addressed us  they taught us  about body language
 
 ## 5th day of student induction program through my eyes  

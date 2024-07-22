@@ -12,7 +12,7 @@ I am Kusum .I have completed my 12th with 90% marks ._**my favourite subject is 
 
 # My excel course is done 
 **_here is my certificate_**
- ![Excel certificate](https://kusum4coding.github.io/Kusum.pd)
+ ![Excel certificate](Kusum.pdf)
  
 
 

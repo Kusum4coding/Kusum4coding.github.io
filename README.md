@@ -208,8 +208,7 @@ She also guided us about essential soft skills .Name of essential soft skills ar
 
 ![count of human bons](skelton.png)
    
-
-
+![animation demonstration](https://github.com/Kusum4coding/Kusum4coding.github.io/blob/main/human%20body%20skelton.mp4)
 
 
 

@@ -12,7 +12,7 @@ I am Kusum .I have completed my 12th with 90% marks ._**my favourite subject is 
 
 # My excel course is done 
 **_here is my certificate_**
- ![Excel certificate](Kusum.pdf)
+ ![Excel certificate](https://kusum4coding.github.io/Kusum.pd)
  
 
 
@@ -150,6 +150,9 @@ He discussed “The Power of Service: NSS and Nation Building,” highlighting h
 2. It helps in acquiring leadership qualities and democratic attitude.
 3. It developer a sense of involvement in the task of nation building.
 4. It helps in developing positive attitude, self-confidence, courage & patience.
+
+
+   
 
 
 

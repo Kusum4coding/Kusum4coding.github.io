@@ -1,6 +1,31 @@
 # Kusum4coding.github.io
 ## About me
-I am Kusum .I have completed my 12th with 90% marks ._**my favourite subject is Maths and I scored 100 marks in it**_  .GNDEC is my dream  college .As Induction program is going on .The generous personalities guided us till now are:-
+I am Kusum .I have completed my 12th with 90% marks ._**my favourite subject is Maths and I scored 100 marks in it**_ mY 12TH marksheet
+
+
+ | subject | total marks |  obtained marks |
+ |---------|-------------|-----------------|
+ | physics | 100   |    87  |
+ | Chemistry|  100  |   87  |
+ | Maths |    100   |  100|
+
+
+My excel course is done 
+here is my certificate
+ ![Excel certificate](Kusum.pdf)
+ 
+
+
+
+
+
+
+
+
+
+
+
+.GNDEC is my dream  college .As Induction program is going on .The generous personalities guided us till now are:-
 
 |  Date  | personalites guided us  |
 |--------|-------------------------|
@@ -125,3 +150,8 @@ He discussed “The Power of Service: NSS and Nation Building,” highlighting h
 2. It helps in acquiring leadership qualities and democratic attitude.
 3. It developer a sense of involvement in the task of nation building.
 4. It helps in developing positive attitude, self-confidence, courage & patience.
+
+
+
+
+

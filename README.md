@@ -157,9 +157,11 @@ He discussed “The Power of Service: NSS and Nation Building,” highlighting h
 # Experience of 8th day..
 
 The first speaker was Kanwardeep Kalra who is an ICBI certified soft skill trainer  Er. Kanwardeep Grewal introduced us to _**“The Journey from Campus to Corporate and Building a Future Beyond the Classroom.”**_ She emphasized that soft skills are as important as technical skills; without them, our technical abilities are less effective. We also watched a role play by seniors that demonstrated how to behave during interviews and how to manage our confidence in front of an interviewer.
-Q. What are soft skills?
-. Basic etiquatee
-. Personality traits
+
+
+- What are soft skills?
+- Basic etiquatee
+- Personality traits
    
 
 

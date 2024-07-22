@@ -207,8 +207,13 @@ She also guided us about essential soft skills .Name of essential soft skills ar
 
 
 ![count of human bons](skelton.png)
+
+
+he recalled some basic science facts in fascinated way ..as...hairs are insulator,
+they taught us new method of learning table of 8,9and also taught us the techneque to make table of 118
+i enjoyed the session verry much...
    
-![animation demonstration](https://github.com/Kusum4coding/Kusum4coding.github.io/blob/main/human%20body%20skelton.mp4)
+ Dr. Jaswinder Singh, the incharge of IAPT and a Shiksha Ratan awardee, is a remarkable personality. He explained that everything in the world is connected to mathematics and provided clear examples. He introduced us to the concepts of induction and conduction, which can seem tough and boring in class, but he made them easy and enjoyable. 
 
 
 

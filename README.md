@@ -200,6 +200,17 @@ She also guided us about essential soft skills .Name of essential soft skills ar
 14. Interpersonal skills
 
  _**According to a survay it took just 7 seconds to make first impresion**_
+
+   ## After her  Dr. Jaswinder sir addressed us
+
+   This session with Jasvinder Sir was both engaging and entertaining. He started by asking the meaning of “Sat Sri Akal.” Although he isn’t a magician by profession, he performed magic tricks and explained the science behind them. He demonstrated the importance of balance by making a table and taught us how to count the bones in the human body he said there are 26 bones in our each feet,27 bones in our each hand ,28 bones in our face,skull,total 52 bones in our chest,5 bones in each arm,5 bones in each leg
+
+   
+
+
+
+
+
    
 
 

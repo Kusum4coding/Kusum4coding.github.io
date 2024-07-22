@@ -152,6 +152,45 @@ He discussed “The Power of Service: NSS and Nation Building,” highlighting h
 4. It helps in developing positive attitude, self-confidence, courage & patience.
 
 
+
+
+# Experience of 8th day..
+
+The first speaker was Kanwardeep Kalra who is an ICBI certified soft skill trainer 
+She defined C as diiferent words
+1. **C**hildhoofd
+2. **C**ompetiton
+3. **C**ollege
+4. **C**arrer
+5. **C**orporate
+6. **C**ompensation
+7. **C**hallenge
+8. **C**omparision
+9. **C**arrer obstacle
+10. **C**onfusions
+11. **C**ommunication gap
+12. **C**omitments
+
+    
+ She says that by2030 onwards it is predicted that 63% of jobs will be comparmised of soft skills roles
+
+She also guided us about essential soft skills .Name of essential soft skills are
+1. Appearence,behaviour and communication skills 
+2. Goal Setting
+3. Time management
+4. Interview andd resume writting
+5. email writting
+6. Body language
+7. Presentation skills
+8. Leadership skills
+9. Public speaking
+10. Teamwork
+11. Confidence building
+12. Emotional intelligence
+13. Problem solving
+14. Interpersonal skills
+
+ _**According to a survay it took just 7 seconds to make first impresion**_
    
 
 

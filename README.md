@@ -215,9 +215,28 @@ i enjoyed the session verry much...
    
  Dr. Jaswinder Singh, the incharge of IAPT and a Shiksha Ratan awardee, is a remarkable personality. He explained that everything in the world is connected to mathematics and provided clear examples. He introduced us to the concepts of induction and conduction, which can seem tough and boring in class, but he made them easy and enjoyable. 
 
+## my experience of 9th day
 
+In the starting of day Dr.S.B sir addressed us he said that these 4 years of life are the most precious one years of life.Our whole life depends upon these 4 years  after that he told us to tear a  pin page from notebook..on that paper he said to write us our name ,section, branch,father name , mother name, mobile numbers of both . After that he said us to write our 4 qualities and then 4 weaknesses , he also told us to write down our dream and what efforts we want to do in upcoming years in order to fulfil that dream and at last he said us to write few lines about college ...
 
-   
+After him Dr.pushpinder sir addressed us..firstly he explained  types of  learners there are 3 types of learners that are . From that I picked out that I am a audiovision Lerner which first listen and then make notes to retain the information permanently
+He advised to set up  **SMART** goals he described **SMART** as
+- **S** =Specific
+- **M** =Mesurment
+- **A** =Achivement
+- **R** =Realistic
+- **T** =Time
+
+he decribes communication styles
+- agressive
+- passive
+- assertive
+
+  he aslo explained athat success  is delightness or feeling of great plesurebut today's man started comparing success with 
+money...he taught us a lesson with reffence of a story    that once there was a man crossing beutiful fields he said to the owner of the fields that what a wonderfulland god has given to you the owener of feilds replied that 5 months back it was a  forest type land what god gave me is the opportunity to convert that forest type land to beutiful fields.
+
+ he said always be deaf and dumb to  negative people .he said always be fast,consistence and do your swort analysis, he instructed to always remember that my compitition is myself .he said learn from nature,for self management learn from honey bees ,for flexibility learn from bamboo trees as we all see in thunderstroms hard and stright trees often fall on the other hand bamboo tree bents and remained protected. He said to achive success, always bleive in yourself and god..
+ 
 
 
 

@@ -237,7 +237,8 @@ money...he taught us a lesson with reffence of a story    that once there was a 
 
  he said always be deaf and dumb to  negative people .he said always be fast,consistence and do your swort analysis, he instructed to always remember that my compitition is myself .he said learn from nature,for self management learn from honey bees ,for flexibility learn from bamboo trees as we all see in thunderstroms hard and stright trees often fall on the other hand bamboo tree bents and remained protected. He said to achive success, always bleive in yourself and god..
  
-
+## Experience of 10th day
+today our first lecture was of peer interaction about college,we got to know many new things about college,we got to know the exam pattern and also pattern of internal assessment our one of te senior  guided us about that  after that we have a maths class ,litteraly i enjoyed the class very much as am maths lover i always enjoy doing maths.our teacher was well vwesrd in their subject they taught us very exelentely
 
 
 
